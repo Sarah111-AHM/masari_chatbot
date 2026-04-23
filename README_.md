@@ -4,7 +4,6 @@
 
 ---
 
-> *"المعلومة في وقتها حق، وحقك أن تعرفه."*
 > *"Timely information is a right — and knowing your rights is a right."*
 
 ---
